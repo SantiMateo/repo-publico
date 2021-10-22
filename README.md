@@ -4,7 +4,9 @@ Probando los repos públicos
 ![medium](https://user-images.githubusercontent.com/92972160/138412076-735a6564-c472-4289-8380-9d21230124c9.jpeg)
 # Ejercicio 2
 1.-
+
 2.-
+
 3.-
 # Ejercicio 3
 1.-![IMG-20180605-WA0003](https://user-images.githubusercontent.com/92972160/138412422-7e8ba0f7-d8b3-48ad-9068-a7cc1a1cb18c.jpg)
